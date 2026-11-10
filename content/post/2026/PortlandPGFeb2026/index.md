@@ -133,12 +133,6 @@ The sun started to set, so we set off. As I was walking back up the approach, I 
 
 {{< figure src="images/13.JPG" width="300">}}
 
-Just as we were walking along the ridge, I thought it would be funny to do the little trip-up thing on Abby. You know, where you nudge someone's foot and they hit their heel. I did it; it was funny (for me). But the second time I did it, within an instant, I felt an acute pain shoot through my leg from an attack so vicious I can only describe what I saw before my attack by picture:
-
-{{< figure src="images/40.JPG" width="300">}}
-
-My attacker was none other than Felicia, who is notorious for her unprompted acts of violence. (If the authorities are reading this, im joking, she was being protective of her bff).
-
 Anyway, we hopped in the vehicles and went to Tesco to pick up food. We then went to the bunkhouse, where we were greeted by the very friendly Surrey uni people. The head chef Theo (Fedir) and his sous-chefs got to work and cooked us up an amazing meal (thank you). We chatted for a while, and it was good. 
 
 {{< figure src="images/9.JPG" width="300">}}
